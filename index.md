@@ -57,4 +57,4 @@ This policy is effective as of 2022-01-10
 
 Contact Us
 
-If you ha
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at winphone7.applications@gmail.com.
